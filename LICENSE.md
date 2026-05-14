@@ -1,4 +1,4 @@
-# 
+# elite low cap gem sniper bot | sandwich-attack-execution + gas-optimization offers the most advanced low cap gem sniper bot, with sandwich-attack-execution and gas-optimization.
 
 
 
